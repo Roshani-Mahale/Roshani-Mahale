@@ -1,5 +1,5 @@
 About Me-  
-Hello! I'm a first-year engineering student 🎓, currently pursuing a Bachelor of Technology (B.Tech) degree. I'm passionate about learning and exploring various facets of engineering and technology. Here's a snapshot of my profile:
+Hello! I'm a second-year engineering student 🎓, currently pursuing a Bachelor of Technology (B.Tech) degree. I'm passionate about learning and exploring various facets of engineering and technology. Here's a snapshot of my profile:
 
 Core Interests-  
 Engineering: Delving into the fundamentals and advanced concepts of engineering, from mechanics to electronics 🛠️.
